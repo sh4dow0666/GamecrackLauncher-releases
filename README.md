@@ -1,1 +1,1 @@
-# GamecrackLauncher-releases
+# Launcher-of-All-Games-releases
